@@ -1,0 +1,1 @@
+<https://github.com/dibingfa/flash-linux0.11-talk/tree/main/%E4%B8%80%E4%BA%9B%E9%9D%9E%E5%BF%85%E8%A6%81%E7%9A%84%E8%B5%84%E6%96%99/Intel%E6%89%8B%E5%86%8C>
